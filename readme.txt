@@ -1,1 +1,2 @@
-why i can't do somanything??
+why i can't t do s omanything??
+so i need to learn.
